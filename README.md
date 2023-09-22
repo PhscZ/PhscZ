@@ -1,4 +1,4 @@
-I have been programming since 2015 and working as a freelancer since around 2019, I have a technicians degree in the field and I am currently in university to further improve my skills and market value.<br>
+I have been programming since 2015 (I was 13!) and working as a freelancer since around 2020, I have a technicians degree in the field (2017-2019) and I am currently in university (2022-????) to further improve my skills and market value.<br>
 <br>
 I am ex-military and a passionate pianist and guitarrist. And I like learning in general and as a hobby, which includes formal logic, philosophy, epistemology neuroscience, economics. I also really enjoy music, movies and videogames.<br>
 <br>
